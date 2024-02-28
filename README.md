@@ -1,5 +1,1 @@
-# T.S. BRAND
-# TRICKS-BY-SATISH
-https://youtu.be/sA6jmjtvSAU?si=EwvdvbSy-ROEGQin
-
-![Alt Text](https://i.imgur.com/GItqLpN.jpeg)
+iTX J3RRY XD FL9TF0RM
